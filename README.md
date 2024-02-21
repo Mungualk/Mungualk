@@ -1,11 +1,9 @@
-- 👋 Hi, I’m @Mungualk
-- 👀 I’m interested in be a dumbass
-- 🌱 I’m currently learning how to be a stupid
-- 💞️ I’m looking to collaborate on blackmesa
-- 📫 How to reach me IG: @barackobama
-- 😄 Pronouns: Dmaj7
-- ⚡ Fun fact: Luz azul al revés es luz azul :D
-- 🪱 My inspiration it´s a worm
+  ∧,,,∧
+ (• ⩊ •)
+|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
+| "My inspiration it´s a worm..."|   
+￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣
+
 
 <!---
 Mungualk/Mungualk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
