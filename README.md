@@ -1,8 +1,4 @@
-  ∧,,,∧
- (• ⩊ •)
-|￣U U￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣|
-| "My inspiration it´s a worm..."|   
-￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣
+"My inspiration it´s a worm..."
 
 
 <!---
