@@ -5,7 +5,7 @@
 - 📫 How to reach me IG: @barackobama
 - 😄 Pronouns: Dmaj7
 - ⚡ Fun fact: Luz azul al revés es luz azul :D
-- :worm: My inspiration it´s a worm
+- 🪱 My inspiration it´s a worm
 
 <!---
 Mungualk/Mungualk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
